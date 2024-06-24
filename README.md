@@ -9,3 +9,4 @@ Me llamo Paulina y actualmente sigo en 5to año del secundario <3
 - Geminis
 - estudiante del colegio Divina MIsericordia
 - Arg/Salta Capital
+- mi instagram https://www.instagram.com/pauli.castilloo/?next=%2F
